@@ -1,0 +1,1 @@
+﻿Just snippets for self.
